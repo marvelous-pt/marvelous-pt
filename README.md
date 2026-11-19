@@ -18,7 +18,8 @@ NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
 **NOTE:** <br>
 I made the top and bottom banner myself, it's not F2U. Do not steal. Thanks!<br>
 My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs this account w/ me & mindlessly spam follows, feel free to soft block if you don't want to be followed!<br>
-I will try and update when I can, sometimes I'm lowkey too busy playing Marvel Rivals to update but I will get to it
+I will try and update when I can, sometimes I'm lowkey too busy playing Marvel Rivals to update but I will get to it<br>
+**IF THERE IS A PROBLEMATIC MEDIA HERE, PLEASE LET ME KNOW IN ATA. I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 
 
 # SHIP NOMINATIONS
@@ -27,6 +28,9 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
 <a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
 <a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is the #1 Sam Wilson x Bucky Barnes Shipper ! <br>
+<a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is the #1 Medic x Spy Shipper ! <br>
+<a href="https://github.com/BloodyBeautiful" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
+<a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -67,6 +71,20 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is Pony Town's Nam-gyu (sǫᴜɪᴅ ɢᴀᴍᴇ) ! <br>
   <br>
 <a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is Pony Town's Tj Hammond (ᴘᴏʟɪᴛɪᴄᴀʟ ᴀɴɪᴍᴀʟs) ! <br>
+  <br>
+<a href="https://github.com/opioiid" rel="nofollow">@opioiid</a> is Pony Town's Hot Pants (ᴊᴊʙᴀ) ! <br>
+  <br>
+<a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is Pony Town's Truman Burbank (Tʀᴜᴍᴀɴ Sʜᴏᴡ) ! <br>
+  <br>
+<a href="https://github.com/twottimey" rel="nofollow">@twottimey</a> is Pony Town's Two Time (Fᴏʀsᴀᴋᴇɴ) ! <br>
+  <br>
+<a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is Pony Town's Newt (Mᴀᴢᴇ ʀᴜɴɴᴇʀ) ! <br>
+  <br>
+<a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is Pony Town's Thomas Sharpe (Cʀɪᴍsᴏɴ Pᴇᴀᴋ) ! <br>
+  <br>
+<a href="https://github.com/Lilwaynxz" rel="nofollow">@Lilwaynxz</a> is Pony Town's Steve Rogers (Mᴀʀᴠᴇʟ) ! <br>
+
+
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>
 </p>

@@ -11,7 +11,7 @@ Please don't spam the ata, and don't start any drama, I got inspired by other no
 **HOW THIS WORKS:** <br>
 No duplicate characters; **I don't really wanna give people the same character** <br>
 NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
-*You may nominate for a character using an alt account, I don't mind.*<br>
+*You may nominate for multiple characters using an alt account, I don't mind.*<br>
 **👍reply = added to the list**<br>
 **no reply = already taken/no github**
 

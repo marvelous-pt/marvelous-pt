@@ -15,6 +15,9 @@ NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
 **👍reply = added to the list**<br>
 **no reply = already taken/no github**
 
+**NOTE:** <br>
+I made the top and bottom banner myself, it's not F2U. Do not steal. Thanks!
+
 
 # SHIP NOMINATIONS
 

@@ -25,11 +25,17 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 # SHIP NOMINATIONS
 
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron Shipper ! <br>
+  <br>
 <a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
+  <br>
 <a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
+  <br>
 <a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is the #1 Sam Wilson x Bucky Barnes Shipper ! <br>
+  <br>
 <a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is the #1 Medic x Spy Shipper ! <br>
+  <br>
 <a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
+  <br>
 <a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
 
 # CHARACTER NOMINATIONS

@@ -8,7 +8,8 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN/NO GITHUB ATTACHED <br>
 
 # SHIP NOMINATIONS
 
-<a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron shipper ! <br>
+<a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron Shipper ! <br>
+<a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 

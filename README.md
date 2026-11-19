@@ -61,7 +61,8 @@ My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs 
 <a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is Pony Town's Lady Loki (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/RQGUE" rel="nofollow">@RQGUE</a> is Pony Town's Rogue (Mᴀʀᴠᴇʟ) ! <br>
-
+  <br>
+<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is Pony Town's Nam-gyu (sǫᴜɪᴅ ɢᴀᴍᴇ) ! <br>
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>
 </p>

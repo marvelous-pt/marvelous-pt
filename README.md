@@ -4,8 +4,8 @@
 
 
 
-# MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif"/>
-nominate yourself and/or others on the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br><br>
+# MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif" width="5%" height="5%" />
+Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br><br>
   <br>
 NOTE: <br>
 Since I'm lazy, no duplicate characters **I don't really wanna give people the same character** <br>

@@ -8,7 +8,7 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN/NO GITHUB ATTACHED <br>
 
 # SHIP NOMINATIONS
 
-*New category hi because I am motivated to do this one too*
+<a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron shipper ! <br>
 
 # CHARACTER NOMINATIONS
 

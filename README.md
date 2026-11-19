@@ -50,6 +50,11 @@ My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs 
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is Pony Town's Ultron (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/LlNLlE" rel="nofollow">@LlNLlE</a> is Pony Town's Iron Fist (Mᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/Chemicalshot" rel="nofollow">@Chemicalshot</a> is Pony Town's Wemmbu (MCYT) ! <br>
+  <br>
+<a href="https://github.com/yaoiburger" rel="nofollow">@yaoiburger</a> is Pony Town's Filia (SᴋᴜʟʟGɪʀʟs) ! <br>
+
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>
 </p>

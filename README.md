@@ -8,4 +8,4 @@ Since I'm lazy, only one character per person.<br>
 
 # NOMINATIONS
 
-<a href="https://marvelous.atabook.org/" rel="nofollow">@ElGHTH</a> is Pony Town's Zhongli (Genshin Impact) !
+<a href="https://github.com/ElGHTH" rel="nofollow">@ElGHTH</a> is Pony Town's Zhongli (Genshin Impact) !

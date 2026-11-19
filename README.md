@@ -1,4 +1,10 @@
-# MARVELOUS PONY TOWN NOMINATIONS
+<p align="center">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Top.png" width="100%" height="30%"/><br>
+</p>
+
+
+
+# MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif"/>
 nominate yourself and/or others on the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br><br>
   <br>
 NOTE: <br>
@@ -34,3 +40,7 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN/NO GITHUB ATTACHED <br>
 <a href="https://github.com/cherryflavoredfoam" rel="nofollow">@cherryflavoredfoam</a> is Pony Town's Lyla (Sᴘɪᴅᴇʀᴠᴇʀsᴇ) ! <br>
   <br>
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is Pony Town's Ultron (Mᴀʀᴠᴇʟ) ! <br>
+
+<p align="center">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>
+</p>

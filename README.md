@@ -29,7 +29,7 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
 <a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is the #1 Sam Wilson x Bucky Barnes Shipper ! <br>
 <a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is the #1 Medic x Spy Shipper ! <br>
-<a href="https://github.com/BloodyBeautiful" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
+<a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
 <a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
 
 # CHARACTER NOMINATIONS

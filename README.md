@@ -2,15 +2,19 @@
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Top.png" width="100%" height="30%"/><br>
 </p>
 
-
-
 # MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif" width="5%" height="5%" />
-Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br><br>
+Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br>
+This is above all a for fun nomination account made by <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a><br>
+Please don't spam the ata, and don't start any drama, I got inspired by other nomination accounts and wanted to make my own!
   <br>
-NOTE: <br>
-Since I'm lazy, no duplicate characters **I don't really wanna give people the same character** <br>
-NO RESPONSE = CHARACTER IS ALREADY TAKEN/NO GITHUB ATTACHED <br>
+  
+**HOW THIS WORKS:** <br>
+No duplicate characters; **I don't really wanna give people the same character** <br>
+NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
 *You may nominate for a character using an alt account, I don't mind.*<br>
+**👍reply = added to the list**<br>
+**no reply = already taken/no github**
+
 
 # SHIP NOMINATIONS
 

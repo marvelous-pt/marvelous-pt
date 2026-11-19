@@ -17,7 +17,7 @@ NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
 
 **NOTE:** <br>
 I made the top and bottom banner myself, it's not F2U. Do not steal. Thanks!<br>
-My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> mindlessly spam follows, feel free to soft block if you don't want to be followed!
+My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs this account w/ me & mindlessly spam follows, feel free to soft block if you don't want to be followed!
 
 
 # SHIP NOMINATIONS

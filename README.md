@@ -3,4 +3,4 @@ nominate yourself and/or others on the  <a href="https://marvelous.atabook.org/"
   <br>
 NOTE: <br>
 Since I'm lazy, only one character per person.<br>
-I don't really wanna give everybody the same character**
+**I don't really wanna give people the same character**

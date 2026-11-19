@@ -24,6 +24,7 @@ My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs 
 
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron Shipper ! <br>
 <a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
+<a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -54,6 +55,10 @@ My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs 
 <a href="https://github.com/Chemicalshot" rel="nofollow">@Chemicalshot</a> is Pony Town's Wemmbu (MCYT) ! <br>
   <br>
 <a href="https://github.com/yaoiburger" rel="nofollow">@yaoiburger</a> is Pony Town's Filia (SᴋᴜʟʟGɪʀʟs) ! <br>
+  <br>
+<a href="https://github.com/mydigitalescape" rel="nofollow">@mydigitalescape</a> is Pony Town's Romeo Montague (ʀᴏᴍᴇᴏ ᴀɴᴅ ᴊᴜʟɪᴇᴛ) ! <br>
+  <br>
+<a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is Pony Town's Lady Loki (Mᴀʀᴠᴇʟ) ! <br>
 
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>

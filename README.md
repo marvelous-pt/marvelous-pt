@@ -4,9 +4,8 @@ nominate yourself and/or others on the  <a href="https://marvelous.atabook.org/"
 NOTE: <br>
 Since I'm lazy, only one character per person.<br>
 **I don't really wanna give people the same character** <br>
-Also, not in alphabetical order I just do whoever writes first I am way too lazy for that
 
 
 # NOMINATIONS
 
-@ElGHTH
+<a href="https://marvelous.atabook.org/" rel="nofollow">@ElGHTH</a> is Pony Town's Zhongli (Genshin Impact) !

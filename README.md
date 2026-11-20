@@ -37,6 +37,12 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
   <br>
 <a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
+  <br>
+<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Reo Mikage x Seishirō Nagi Shipper ! <br>
+  <br>
+<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Tenna x Spamton Shipper ! <br>
+  <br>
+<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is #1 Gorr the God Butcher x Ultron Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -91,6 +97,16 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/Lilwaynxz" rel="nofollow">@Lilwaynxz</a> is Pony Town's Steve Rogers (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/bigguykoi" rel="nofollow">@bigguykoi</a> is Pony Town's Tony Stark (Mᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/itrappedfan" rel="nofollow">@itrappedfan</a> is Pony Town's Froggydude ! <br>
+  <br>
+<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is Pony Town's Reo Mikage (Bʟᴜᴇ Lᴏᴄᴋ) ! <br>
+  <br>
+<a href="https://github.com/protectioncharm" rel="nofollow">@protectioncharm</a> is Pony Town's Doflamingo (Oɴᴇ Pɪᴇᴄᴇ) ! <br>
+  <br>
+<a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is Pony Town's Tenna (Dᴇʟᴛᴀʀᴜɴᴇ) ! <br>
+  <br>
+<a href="https://github.com/chipwhisp" rel="nofollow">@chipwhisp</a> is Pony Town's Spider-Noir (Mᴀʀᴠᴇʟ) ! <br>
 
 
 <p align="center">

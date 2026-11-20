@@ -49,6 +49,8 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/sweetrollcosmo" rel="nofollow">@sweetrollcosmo</a> is the #1 Cosmo x Sprout Shipper ! <br>
   <br>
 <a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is the #1 Gamora x Star-Lord Shipper ! <br>
+  <br>
+<a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is the #1 Squiddo x Ashswag Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -121,6 +123,8 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is Pony Town's Gamora (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/Kurokaori" rel="nofollow">@Kurokaori</a> is Pony Town's Yatta the Pinata (ᴅᴀɴᴅʏs ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is Pony Town's Commander_ (UUSMP) ! <br>
 
 
 <p align="center">

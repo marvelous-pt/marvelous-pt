@@ -40,7 +40,7 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
   <br>
 <a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Reo Mikage x Seishirō Nagi Shipper ! <br>
   <br>
-<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Tenna x Spamton Shipper ! <br>
+<a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is the #1 Tenna x Spamton Shipper ! <br>
   <br>
 <a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is #1 Gorr the God Butcher x Ultron Shipper ! <br>
 

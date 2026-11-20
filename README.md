@@ -45,6 +45,10 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is the #1 Gorr the God Butcher x Ultron Shipper ! <br>
   <br>
 <a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is the #1 Gamzee x Tavros Shipper ! <br>
+  <br>
+<a href="https://github.com/sweetrollcosmo" rel="nofollow">@sweetrollcosmo</a> is the #1 Cosmo x Sprout Shipper ! <br>
+  <br>
+<a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is the #1 Gamora x Star-Lord Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -111,6 +115,10 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/chipwhisp" rel="nofollow">@chipwhisp</a> is Pony Town's Spider-Noir (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is Pony Town's Tavros Nitram (Hᴏᴍᴇsᴛᴜᴄᴋ) ! <br>
+  <br>
+<a href="https://github.com/sweetrollcosmo" rel="nofollow">@sweetrollcosmo</a> is Pony Town's Cosmo (ᴅᴀɴᴅʏs ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is Pony Town's Gamora (Mᴀʀᴠᴇʟ) ! <br>
 
 
 <p align="center">

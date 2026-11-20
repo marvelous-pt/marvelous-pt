@@ -42,7 +42,9 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
   <br>
 <a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is the #1 Tenna x Spamton Shipper ! <br>
   <br>
-<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is #1 Gorr the God Butcher x Ultron Shipper ! <br>
+<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is the #1 Gorr the God Butcher x Ultron Shipper ! <br>
+  <br>
+<a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is the #1 Gamzee x Tavros Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -107,6 +109,8 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is Pony Town's Tenna (Dᴇʟᴛᴀʀᴜɴᴇ) ! <br>
   <br>
 <a href="https://github.com/chipwhisp" rel="nofollow">@chipwhisp</a> is Pony Town's Spider-Noir (Mᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is Pony Town's Tavros Nitram (Hᴏᴍᴇsᴛᴜᴄᴋ) ! <br>
 
 
 <p align="center">

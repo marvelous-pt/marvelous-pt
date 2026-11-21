@@ -81,6 +81,8 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is Pony Town's Ultron (Mᴀʀᴠᴇʟ) ! <br>
   <br>
+<a href="https://github.com/chIoroform" rel="nofollow">@chIoroform</a> is Pony Town's Doctor Strange (Mᴀʀᴠᴇʟ) ! <br>
+  <br>
 <a href="https://github.com/LlNLlE" rel="nofollow">@LlNLlE</a> is Pony Town's Iron Fist (Mᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/Chemicalshot" rel="nofollow">@Chemicalshot</a> is Pony Town's Wemmbu (MCYT) ! <br>

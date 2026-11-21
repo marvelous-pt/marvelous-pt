@@ -3,7 +3,6 @@
 </p>
 
 
-# MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif" width="5%" height="5%" />
 Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br>
 This is above all a for fun nomination account made by <a href="https://github.com/chIoroform" rel="nofollow">@chIoroform</a><br>
 Please don't spam the ata, and don't start any drama, I got inspired by other nomination accounts and wanted to make my own!

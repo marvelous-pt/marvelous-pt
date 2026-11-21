@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Top.png" width="100%" height="30%"/><br>
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Nomi.png" width="100%" height="30%"/><br>
 </p>
 
 # MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif" width="5%" height="5%" />

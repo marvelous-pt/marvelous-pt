@@ -57,9 +57,11 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/yubelsrevenge" rel="nofollow">@yubelsrevenge</a> is the #1 Judai Yuki x Johan Andersen Shipper ! <br>
   <br>
-<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> & <a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> are the #1 DoubleFedora Shippers ! <br>
+<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> & <a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> are the #1 Chance x Mafioso Shippers ! <br>
   <br>
 <a href="https://github.com/cborle" rel="nofollow">@cborle</a> is the #1 Couriway x Feinberg Shipper ! <br>
+  <br>
+<a href="https://github.com/purgatorysilverstar" rel="nofollow">@purgatorysilverstar</a> is the #1 The Captain x Lt. Havers Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -160,6 +162,10 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/STAN-O-WAR" rel="nofollow">@STAN-O-WAR</a> is Pony Town's Dean Winchester (Sᴜᴘᴇʀɴᴀᴛᴜʀᴀʟ) ! <br>
   <br>
 <a href="https://github.com/2099s" rel="nofollow">@2099s</a> is Pony Town's Miguel O'Hara (ᴍᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/UNLEASH-NOLI" rel="nofollow">@UNLEASH-NOLI</a> is Pony Town's Noli (ʀᴏʙʟᴏx) ! <br>
+  <br>
+<a href="https://github.com/broflovskii" rel="nofollow">@broflovskii</a> is Pony Town's Stan Marsh (sᴏᴜᴛʜ ᴘᴀʀᴋ) ! <br>
 
 
 <p align="center">

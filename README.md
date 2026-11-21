@@ -61,6 +61,12 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/cborle" rel="nofollow">@cborle</a> is the #1 Couriway x Feinberg Shipper ! <br>
   <br>
 <a href="https://github.com/purgatorysilverstar" rel="nofollow">@purgatorysilverstar</a> is the #1 The Captain x Lt. Havers Shipper ! <br>
+  <br>
+<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is the #1 Curse x Metal Curse Shipper ! <br>
+  <br>
+<a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is the #1 MiguelCest Shipper ! <br>
+  <br>
+<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Chance x Elliot Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -82,7 +88,7 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/panacealove" rel="nofollow">@panacealove</a> is Pony Town's Parrotx2 (Uɴsᴛᴀʙʟᴇ Uɴɪᴠᴇʀsᴇ / MCYT) ! <br>
   <br>
-<a href="https://github.com/cherryflavoredfoam" rel="nofollow">@cherryflavoredfoam</a> is Pony Town's Lyla (Sᴘɪᴅᴇʀᴠᴇʀsᴇ) ! <br>
+<a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is Pony Town's Lyla (Sᴘɪᴅᴇʀᴠᴇʀsᴇ) ! <br>
   <br>
 <a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is Pony Town's Ultron (Mᴀʀᴠᴇʟ) ! <br>
   <br>
@@ -165,6 +171,14 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/UNLEASH-NOLI" rel="nofollow">@UNLEASH-NOLI</a> is Pony Town's Noli (ʀᴏʙʟᴏx) ! <br>
   <br>
 <a href="https://github.com/broflovskii" rel="nofollow">@broflovskii</a> is Pony Town's Stan Marsh (sᴏᴜᴛʜ ᴘᴀʀᴋ) ! <br>
+  <br>
+<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is Pony Town's Curse the Hedgehog (CᴜʀsᴇOғX) ! <br>
+  <br>
+<a href="https://github.com/Lynxcified" rel="nofollow">@Lynxcified</a> is Pony Town's Doctor Doom (ᴍᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Adelaide (ᴅʀᴇᴀᴍ ɢᴀᴍᴇ) ! <br>
+  <br>
+<a href="https://github.com/larppool" rel="nofollow">@larppool</a> is Pony Town's Deadpool (ᴍᴀʀᴠᴇʟ) ! <br>
 
 
 <p align="center">

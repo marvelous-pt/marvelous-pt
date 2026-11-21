@@ -17,9 +17,10 @@ NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
 
 **NOTE:** <br>
 I made the top and bottom banner myself, it's not F2U. Do not steal. Thanks!<br>
-My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs this account w/ me & mindlessly spam follows, feel free to soft block if you don't want to be followed!<br>
-I will try and update when I can, sometimes I'm lowkey too busy playing Marvel Rivals to update but I will get to it<br>
-**IF THERE IS A PROBLEMATIC MEDIA HERE, PLEASE LET ME KNOW IN ATA. I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
+My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs this account w/ me. <br>
+  <br>
+**IF THERE IS A PROBLEMATIC MEDIA HERE, PLEASE LET ME KNOW IN ATA.<br>
+I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 
 
 # SHIP NOMINATIONS

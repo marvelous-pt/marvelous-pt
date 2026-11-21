@@ -2,6 +2,7 @@
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Nomi.png" width="100%" height="30%"/><br>
 </p>
 
+
 # MARVELOUS PONY TOWN NOMINATIONS <img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Heart.gif" width="5%" height="5%" />
 Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br>
 This is above all a for fun nomination account made by <a href="https://github.com/chIoroform" rel="nofollow">@chIoroform</a><br>
@@ -20,6 +21,9 @@ My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs 
 **IF THERE IS A PROBLEMATIC MEDIA HERE, PLEASE LET ME KNOW IN ATA.<br>
 I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 
+<p align="center">
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Divi234.png" width="40%" height="30%"/><br>
+</p>
 
 # SHIP NOMINATIONS
 
@@ -159,5 +163,5 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 
 
 <p align="center">
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/URLs/Basement/5/Bottom.png" width="100%" height="30%"/><br>
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/BTM.png" width="100%" height="30%"/><br>
 </p>

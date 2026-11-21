@@ -51,6 +51,12 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is the #1 Gamora x Star-Lord Shipper ! <br>
   <br>
 <a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is the #1 Squiddo x Ashswag Shipper ! <br>
+  <br>
+<a href="https://github.com/yubelsrevenge" rel="nofollow">@yubelsrevenge</a> is the #1 Judai Yuki x Johan Andersen Shipper ! <br>
+  <br>
+<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> & <a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> are the #1 DoubleFedora Shippers ! <br>
+  <br>
+<a href="https://github.com/cborle" rel="nofollow">@cborle</a> is the #1 Couriway x Feinberg Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -125,6 +131,30 @@ I will try and update when I can, sometimes I'm lowkey too busy playing Marvel R
 <a href="https://github.com/Kurokaori" rel="nofollow">@Kurokaori</a> is Pony Town's Yatta the Pinata (ᴅᴀɴᴅʏs ᴡᴏʀʟᴅ) ! <br>
   <br>
 <a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is Pony Town's Commander_ (UUSMP) ! <br>
+  <br>
+<a href="https://github.com/sextaping" rel="nofollow">@sextaping</a> is Pony Town's Joey Jordison (Sʟɪᴘᴋɴᴏᴛ) ! <br>
+  <br>
+<a href="https://github.com/RadiantCity" rel="nofollow">@RadiantCity</a> is Pony Town's Iqie (Iɴsᴏᴍɴɪᴀᴄᴋs) ! <br>
+  <br>
+<a href="https://github.com/sketchyremorse" rel="nofollow">@sketchyremorse</a> is Pony Town's Stephanie Brown (ᴅᴄ) ! <br>
+  <br>
+<a href="https://github.com/webbedinrot" rel="nofollow">@webbedinrot</a> is Pony Town's Bucky Barnes (ᴍᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/yubelsrevenge" rel="nofollow">@yubelsrevenge</a> is Pony Town's Judai Yuki (ʏᴜɢɪᴏʜ ɢx) ! <br>
+  <br>
+<a href="https://github.com/1SPOKEISHERE" rel="nofollow">@1SPOKEISHERE</a> is Pony Town's SpokeIsHere (MCYT) ! <br>
+  <br>
+<a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> is Pony Town's Chance (ғᴏʀsᴀᴋᴇɴ) ! <br>
+  <br>
+<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> is Pony Town's Mafioso (ғᴏʀsᴀᴋᴇɴ) ! <br>
+  <br>
+<a href="https://github.com/R0TT3NB3RRY" rel="nofollow">@R0TT3NB3RRY</a> is Pony Town's Sprout Seedly (ᴅᴀɴᴅʏs ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/cborle" rel="nofollow">@cborle</a> is Pony Town's Feinberg (MCSR / MCYT) ! <br>
+  <br>
+<a href="https://github.com/STAN-O-WAR" rel="nofollow">@STAN-O-WAR</a> is Pony Town's Dean Winchester (Sᴜᴘᴇʀɴᴀᴛᴜʀᴀʟ) ! <br>
+  <br>
+<a href="https://github.com/2099s" rel="nofollow">@2099s</a> is Pony Town's Miguel O'Hara (ᴍᴀʀᴠᴇʟ) ! <br>
 
 
 <p align="center">

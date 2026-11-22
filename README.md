@@ -180,11 +180,13 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Adelaide (ᴅʀᴇᴀᴍ ɢᴀᴍᴇ) ! <br>
   <br>
-<a href="https://github.com/larppool" rel="nofollow">@larppool</a> is Pony Town's Deadpool (ᴍᴀʀᴠᴇʟ) ! <br>
-  <br>
 <a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is Pony Town's Haebeom Kwon (Oᴜʀ Sᴜɴɴʏ Dᴀʏs) ! <br>
   <br>
 <a href="https://github.com/daziibyte" rel="nofollow">@daziibyte</a> is Pony Town's Magnus Chase (ᴍᴀɢɴᴜs ᴄʜᴀsᴇ ᴛʀɪʟᴏɢʏ) ! <br>
+  <br>
+<a href="https://github.com/literallyharkness" rel="nofollow">@literallyharkness</a> is Pony Town's Agatha Harkness (ᴍᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/AppleBurst" rel="nofollow">@AppleBurst</a> is Pony Town's AndreW2002 (Cᴏʟʟɪɴʟᴏᴄᴋ16 Cᴏɴᴛɪɴᴜɪᴛʏ) ! <br>
 
 
 

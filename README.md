@@ -67,6 +67,8 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is the #1 MiguelCest Shipper ! <br>
   <br>
 <a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Chance x Elliot Shipper ! <br>
+  <br>
+<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is Pony Town's Haebeom Kwon x Sung Ho Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -179,6 +181,11 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Adelaide (ᴅʀᴇᴀᴍ ɢᴀᴍᴇ) ! <br>
   <br>
 <a href="https://github.com/larppool" rel="nofollow">@larppool</a> is Pony Town's Deadpool (ᴍᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is Pony Town's Haebeom Kwon (Oᴜʀ Sᴜɴɴʏ Dᴀʏs) ! <br>
+  <br>
+<a href="https://github.com/daziibyte" rel="nofollow">@daziibyte</a> is Pony Town's Magnus Chase (ᴍᴀɢɴᴜs ᴄʜᴀsᴇ ᴛʀɪʟᴏɢʏ) ! <br>
+
 
 
 <p align="center">

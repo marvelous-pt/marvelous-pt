@@ -187,7 +187,10 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/literallyharkness" rel="nofollow">@literallyharkness</a> is Pony Town's Agatha Harkness (ᴍᴀʀᴠᴇʟ) ! <br>
   <br>
 <a href="https://github.com/AppleBurst" rel="nofollow">@AppleBurst</a> is Pony Town's AndreW2002 (Cᴏʟʟɪɴʟᴏᴄᴋ16 Cᴏɴᴛɪɴᴜɪᴛʏ) ! <br>
-
+  <br>
+<a href="https://github.com/T0uchtonetelephone" rel="nofollow">@T0uchtonetelephone</a> is Pony Town's Cesar Torres (Tʜᴇ Mᴀɴᴅᴇʟᴀ Cᴀᴛᴀʟᴏɢᴜᴇ) ! <br>
+  <br>
+<a href="https://github.com/chromisawakening" rel="nofollow">@chromisawakening</a> is Pony Town's Chrom (Fɪʀᴇ Eᴍʙʟᴇᴍ Aᴡᴀᴋᴇɴɪɴɢ) ! <br>
 
 
 <p align="center">

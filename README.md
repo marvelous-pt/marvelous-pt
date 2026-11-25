@@ -69,6 +69,10 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Chance x Elliot Shipper ! <br>
   <br>
 <a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is Pony Town's Haebeom Kwon x Sung Ho Shipper ! <br>
+  <br>
+<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Heavy x Medic Shipper ! <br>
+  <br>
+<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Karl x Barry Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -174,7 +178,7 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/broflovskii" rel="nofollow">@broflovskii</a> is Pony Town's Stan Marsh (sᴏᴜᴛʜ ᴘᴀʀᴋ) ! <br>
   <br>
-<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is Pony Town's Curse the Hedgehog (CᴜʀsᴇOғX) ! <br>
+<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is Pony Town's Curse the Hedgehog (Cᴜʀsᴇ Oғ X) ! <br>
   <br>
 <a href="https://github.com/Lynxcified" rel="nofollow">@Lynxcified</a> is Pony Town's Doctor Doom (ᴍᴀʀᴠᴇʟ) ! <br>
   <br>
@@ -191,6 +195,32 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/T0uchtonetelephone" rel="nofollow">@T0uchtonetelephone</a> is Pony Town's Cesar Torres (Tʜᴇ Mᴀɴᴅᴇʟᴀ Cᴀᴛᴀʟᴏɢᴜᴇ) ! <br>
   <br>
 <a href="https://github.com/chromisawakening" rel="nofollow">@chromisawakening</a> is Pony Town's Chrom (Fɪʀᴇ Eᴍʙʟᴇᴍ Aᴡᴀᴋᴇɴɪɴɢ) ! <br>
+  <br>
+<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Medic (ᴛᴇᴀᴍ ғᴏʀᴛʀᴇss 2) ! <br>
+  <br>
+<a href="https://github.com/suguruberry" rel="nofollow">@suguruberry</a> is Pony Town's Barry Allen (ᴅᴄ) ! <br>
+  <br>
+<a href="https://github.com/yurinpd" rel="nofollow">@yurinpd</a> is Pony Town's Sancho (ʟɪᴍʙᴜs ᴄᴏᴍᴘᴀɴʏ) ! <br>
+  <br>
+<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is Pony Town's Karl (Gᴜᴛs & Bʟᴀᴄᴋᴘᴏᴡᴅᴇʀ) ! <br>
+  <br>
+<a href="https://github.com/Ham-milton" rel="nofollow">@Ham-milton</a> is Pony Town's Scared French Soldier (Gᴜᴛs & Bʟᴀᴄᴋᴘᴏᴡᴅᴇʀ) ! <br>
+  <br>
+<a href="https://github.com/ASTROSLAMENT" rel="nofollow">@ASTROSLAMENT</a> is Pony Town's Blot (Gᴜᴛs & Bʟᴀᴄᴋᴘᴏᴡᴅᴇʀ) ! <br>
+  <br>
+<a href="https://github.com/ASTROSLAMENT" rel="nofollow">@ASTROSLAMENT</a> is Pony Town's Blot (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/sanguinesilence" rel="nofollow">@sanguinesilence</a> is Pony Town's Astro Novalite (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/TheSpoiledRiches" rel="nofollow">@TheSpoiledRiches</a> is Pony Town's Adam Murray (Tʜᴇ Mᴀɴᴅᴇʟᴀ Cᴀᴛᴀʟᴏɢᴜᴇ) ! <br>
+  <br>
+<a href="https://github.com/mortisfication" rel="nofollow">@mortisfication</a> is Pony Town's Chris Redfield (ʀᴇsɪᴅᴇɴᴛ ᴇᴠɪʟ) ! <br>
+  <br>
+<a href="https://github.com/mortisfication" rel="nofollow">@mortisfication</a> is Pony Town's Portgas D. Ace (ᴏɴᴇ ᴘɪᴇᴄᴇ) ! <br>
+  <br>
+<a href="https://github.com/DucksEatBreads" rel="nofollow">@DucksEatBreads</a> is Pony Town's John Jones (ᴅᴄ) ! <br>
+
+
 
 
 <p align="center">

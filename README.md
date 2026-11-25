@@ -206,11 +206,9 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/Ham-milton" rel="nofollow">@Ham-milton</a> is Pony Town's Scared French Soldier (Gᴜᴛs & Bʟᴀᴄᴋᴘᴏᴡᴅᴇʀ) ! <br>
   <br>
-<a href="https://github.com/ASTROSLAMENT" rel="nofollow">@ASTROSLAMENT</a> is Pony Town's Blot (Gᴜᴛs & Bʟᴀᴄᴋᴘᴏᴡᴅᴇʀ) ! <br>
+<a href="https://github.com/sanguinesilence" rel="nofollow">@sanguinesilence</a> is Pony Town's Blot (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
   <br>
-<a href="https://github.com/ASTROSLAMENT" rel="nofollow">@ASTROSLAMENT</a> is Pony Town's Blot (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
-  <br>
-<a href="https://github.com/sanguinesilence" rel="nofollow">@sanguinesilence</a> is Pony Town's Astro Novalite (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
+<a href="https://github.com/ASTROSLAMENT" rel="nofollow">@ASTROSLAMENT</a> is Pony Town's Astro Novalite (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
   <br>
 <a href="https://github.com/TheSpoiledRiches" rel="nofollow">@TheSpoiledRiches</a> is Pony Town's Adam Murray (Tʜᴇ Mᴀɴᴅᴇʟᴀ Cᴀᴛᴀʟᴏɢᴜᴇ) ! <br>
   <br>

@@ -72,7 +72,7 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Heavy x Medic Shipper ! <br>
   <br>
-<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Karl x Barry Shipper ! <br>
+<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is Pony Town's Karl x Barry Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 

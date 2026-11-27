@@ -174,6 +174,10 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN <br>
 <a href="https://github.com/theultimatekohamster" rel="nofollow">@theultimatekohamster</a> is Pony Town's ITrapped (ғᴏʀsᴀᴋᴇɴ) ! <br>
   <br>
 <a href="https://github.com/tillallareloved" rel="nofollow">@tillallareloved</a> is Pony Town's Jocasta (Mᴀʀᴠᴇʟ) ! <br>
+  <br>
+<a href="https://github.com/sea-shantyyy" rel="nofollow">@sea-shantyyy</a> is Pony Town's Telamon (ғᴏʀsᴀᴋᴇɴ) ! <br>
+  <br>
+<a href="https://github.com/antoneIIi" rel="nofollow">@antoneIIi</a> is Pony Town's Kimi Antonelli (ғᴏʀᴍᴜʟᴀ 1) ! <br>
 
 <p align="center">
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Ship.png" width="30%" height="100%"/><br>

@@ -1,84 +1,27 @@
 <p align="center">
-<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Nomi.png" width="100%" height="30%"/><br>
+<img src="https://64.media.tumblr.com/bcce2177062df35a29a7c174eab70c4c/c180709f0a1beca8-a6/s100x200/ab92343c0beda8c56ebb94b7182cd52a7fa4c84c.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/4316544f88d2503495a43badbf1bb763/c180709f0a1beca8-31/s100x200/694801f206579cb69aef697dd5b4adc61437e5be.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/88879516f029bcc027082a5568b6c5df/c180709f0a1beca8-9f/s100x200/f0e3fa78eb5145fcd653435d803f847fc93ba4ec.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/7456efbb393f4c46fac1c032fcfe908b/c180709f0a1beca8-18/s100x200/bec4ce9c8fde0b9a26abea9cda3ebb34986148d4.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/b58a93aa834c27e638e091c0739453e7/c180709f0a1beca8-67/s100x200/be992e9dea122ef2abb4e9b0a07ec607297cb949.pnj" width="10%" height="100%"/>
 </p>
-
-
-Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org/" rel="nofollow">新book</a></br>
-This is above all a for fun nomination account made by <a href="https://github.com/chIoroform" rel="nofollow">@chIoroform</a><br>
-Please don't spam the ata, and don't start any drama, I got inspired by other nomination accounts and wanted to make my own!
-  <br>
-  
-**HOW THIS WORKS:** <br>
-No duplicate characters; **I don't really wanna give people the same character** <br>
-NO RESPONSE = CHARACTER IS **ALREADY** TAKEN/**NO** GITHUB ATTACHED <br>
-*You may nominate for multiple characters using alt accounts, I don't mind.*<br>
-
-**NOTE:** <br>
-I made the top and bottom banner myself, it's not F2U. Do not steal. Thanks!<br>
-My friend <a href="https://github.com/lacette" rel="nofollow">@lacette</a> runs this account w/ me. <br>
-  <br>
-**IF THERE IS A PROBLEMATIC MEDIA HERE, PLEASE LET ME KNOW IN ATA.<br>
-I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
-
 <p align="center">
-<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Divi234.png" width="40%" height="30%"/><br>
+    <img src="https://64.media.tumblr.com/0d41b51b6cc3027bbc56fa14899689c0/c31c51f27d303601-55/s400x600/716189d7308a199487bd682e9e9c57d5cd337e12.gifv" width="20%" height="100%"/>
 </p>
-
-# SHIP NOMINATIONS
-
-<a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron Shipper ! <br>
-  <br>
-<a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
-  <br>
-<a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
-  <br>
-<a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is the #1 Sam Wilson x Bucky Barnes Shipper ! <br>
-  <br>
-<a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is the #1 Medic x Spy Shipper ! <br>
-  <br>
-<a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
-  <br>
-<a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
-  <br>
-<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Reo Mikage x Seishirō Nagi Shipper ! <br>
-  <br>
-<a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is the #1 Tenna x Spamton Shipper ! <br>
-  <br>
-<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is the #1 Gorr the God Butcher x Ultron Shipper ! <br>
-  <br>
-<a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is the #1 Gamzee x Tavros Shipper ! <br>
-  <br>
-<a href="https://github.com/sweetrollcosmo" rel="nofollow">@sweetrollcosmo</a> is the #1 Cosmo x Sprout Shipper ! <br>
-  <br>
-<a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is the #1 Gamora x Star-Lord Shipper ! <br>
-  <br>
-<a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is the #1 Squiddo x Ashswag Shipper ! <br>
-  <br>
-<a href="https://github.com/yubelsrevenge" rel="nofollow">@yubelsrevenge</a> is the #1 Judai Yuki x Johan Andersen Shipper ! <br>
-  <br>
-<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> & <a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> are the #1 Chance x Mafioso Shippers ! <br>
-  <br>
-<a href="https://github.com/cborle" rel="nofollow">@cborle</a> is the #1 Couriway x Feinberg Shipper ! <br>
-  <br>
-<a href="https://github.com/purgatorysilverstar" rel="nofollow">@purgatorysilverstar</a> is the #1 The Captain x Lt. Havers Shipper ! <br>
-  <br>
-<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is the #1 Curse x Metal Curse Shipper ! <br>
-  <br>
-<a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is the #1 MiguelCest Shipper ! <br>
-  <br>
-<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is the #1 Chance x Elliot Shipper ! <br>
-  <br>
-<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is the #1 Haebeom Kwon x Sung Ho Shipper ! <br>
-  <br>
-<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is the #1 Heavy x Medic Shipper ! <br>
-  <br>
-<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is the #1 Karl x Barry Shipper ! <br>
-  <br>
-<a href="https://github.com/endless-cycles" rel="nofollow">@endless-cycles</a> is the #1 Majin Sonic x Lord X Shipper ! <br>
-
-# CHARACTER NOMINATIONS
-
-<a href="https://github.com/ElGHTH" rel="nofollow">@ElGHTH</a> is Pony Town's Zhongli (Gᴇɴsʜɪɴ Iᴍᴘᴀᴄᴛ) ! <br>
+<p align="center">
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/MrvlBottom.png" width="60%" height="100%"/><br>
+₊ ꒰🌈꒱ ⋮〢WELCOME TO MARVELOUS TOWN 𝜗𝜚 ‧₊˚. <br>
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶<br>
+  🖍️ ⸝⸝⸝•˙┆Nominate yourself and/or others using the  <a href="https://marvelous.atabook.org" rel="nofollow">新book</a>┆ּꉹׄ🦄 ᩧᮬ <br> 
+🍨.˚𓏼 LAST UPDATED: NOVEMBER 27TH, 2026 ! ₊˙⊹ 🍭
+  </p>
+  <p align="center">
+ฅ^•ﻌ•^ฅ RULES . 🌈 . ♡ <br> 
+No Drama, No Spamming, First Come First Serve Basis. <br>
+Type your GitHub User correctly or else I can't add you. <br>
+This Layout was made custom by me, please don't use/steal anything from here! <br>
+NO RESPONSE = CHARACTER IS ALREADY TAKEN <br>
+    <br>
+<img src="https://64.media.tumblr.com/f9a0879178d9b88c3f068944f3def8a0/43ace2e42da0bbdb-59/s2048x3072/bed99cad182651fd9d544aaf91a8444d3ff59a4c.gifv" width="50%" height="100%"/>
+<p align="center">
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Character.png" width="30%" height="100%"/><br>
+    <a href="https://github.com/ElGHTH" rel="nofollow">@ElGHTH</a> is Pony Town's Zhongli (Gᴇɴsʜɪɴ Iᴍᴘᴀᴄᴛ) ! <br>
   <br>
 <a href="https://github.com/princezammies" rel="nofollow">@princezammies</a> is Pony Town's Chikawa (Cʜɪɪᴋᴀᴡᴀ) ! <br>
   <br>
@@ -232,7 +175,61 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/tillallareloved" rel="nofollow">@tillallareloved</a> is Pony Town's Jocasta (Mᴀʀᴠᴇʟ) ! <br>
 
+<p align="center">
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Ship.png" width="30%" height="100%"/><br>
+<a href="https://github.com/ultronirl" rel="nofollow">@ultronirl</a> is the #1 Doctor Strange x Ultron Shipper ! <br>
+  <br>
+<a href="https://github.com/lacette" rel="nofollow">@lacette</a> is the #1 Doctor Doom x Mr Fantastic Shipper ! <br>
+  <br>
+<a href="https://github.com/god-of-stories" rel="nofollow">@god-of-stories</a> is the #1 Mobius x Loki Shipper ! <br>
+  <br>
+<a href="https://github.com/r0wlys" rel="nofollow">@r0wlys</a> is the #1 Sam Wilson x Bucky Barnes Shipper ! <br>
+  <br>
+<a href="https://github.com/BloodyBeautiful" rel="nofollow">@BloodyBeautiful</a> is the #1 Medic x Spy Shipper ! <br>
+  <br>
+<a href="https://github.com/meichuu" rel="nofollow">@meichuu</a> is the #1 Minho x Newt Shipper ! <br>
+  <br>
+<a href="https://github.com/twhiddleston" rel="nofollow">@twhiddleston</a> is the #1 Bruce Banner x Loki Shipper ! <br>
+  <br>
+<a href="https://github.com/RE0-MIKAGE" rel="nofollow">@RE0-MIKAGE</a> is the #1 Reo Mikage x Seishirō Nagi Shipper ! <br>
+  <br>
+<a href="https://github.com/spam-tune" rel="nofollow">@spam-tune</a> is the #1 Tenna x Spamton Shipper ! <br>
+  <br>
+<a href="https://github.com/Trickzterrr" rel="nofollow">@Trickzterrr</a> is the #1 Gorr the God Butcher x Ultron Shipper ! <br>
+  <br>
+<a href="https://github.com/b0nGwAtEr-o0" rel="nofollow">@b0nGwAtEr-o0</a> is the #1 Gamzee x Tavros Shipper ! <br>
+  <br>
+<a href="https://github.com/sweetrollcosmo" rel="nofollow">@sweetrollcosmo</a> is the #1 Cosmo x Sprout Shipper ! <br>
+  <br>
+<a href="https://github.com/legendary-outlaw" rel="nofollow">@legendary-outlaw</a> is the #1 Gamora x Star-Lord Shipper ! <br>
+  <br>
+<a href="https://github.com/S9okeishere" rel="nofollow">@S9okeishere</a> is the #1 Squiddo x Ashswag Shipper ! <br>
+  <br>
+<a href="https://github.com/yubelsrevenge" rel="nofollow">@yubelsrevenge</a> is the #1 Judai Yuki x Johan Andersen Shipper ! <br>
+  <br>
+<a href="https://github.com/DEBTHVERIFIED" rel="nofollow">@DEBTHVERIFIED</a> & <a href="https://github.com/coinsflips" rel="nofollow">@coinsflips</a> are the #1 Chance x Mafioso Shippers ! <br>
+  <br>
+<a href="https://github.com/cborle" rel="nofollow">@cborle</a> is the #1 Couriway x Feinberg Shipper ! <br>
+  <br>
+<a href="https://github.com/purgatorysilverstar" rel="nofollow">@purgatorysilverstar</a> is the #1 The Captain x Lt. Havers Shipper ! <br>
+  <br>
+<a href="https://github.com/cosmooirl" rel="nofollow">@cosmooirl</a> is the #1 Curse x Metal Curse Shipper ! <br>
+  <br>
+<a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is the #1 MiguelCest Shipper ! <br>
+  <br>
+<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is the #1 Chance x Elliot Shipper ! <br>
+  <br>
+<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is the #1 Haebeom Kwon x Sung Ho Shipper ! <br>
+  <br>
+<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is the #1 Heavy x Medic Shipper ! <br>
+  <br>
+<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is the #1 Karl x Barry Shipper ! <br>
+  <br>
+<a href="https://github.com/endless-cycles" rel="nofollow">@endless-cycles</a> is the #1 Majin Sonic x Lord X Shipper ! <br>
 
 <p align="center">
-<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/BTM.png" width="100%" height="30%"/><br>
+<img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/MrvlTop.png" width="60%" height="100%"/><br>
+</p>
+<p align="center">
+<img src="https://64.media.tumblr.com/bcce2177062df35a29a7c174eab70c4c/c180709f0a1beca8-a6/s100x200/ab92343c0beda8c56ebb94b7182cd52a7fa4c84c.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/4316544f88d2503495a43badbf1bb763/c180709f0a1beca8-31/s100x200/694801f206579cb69aef697dd5b4adc61437e5be.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/88879516f029bcc027082a5568b6c5df/c180709f0a1beca8-9f/s100x200/f0e3fa78eb5145fcd653435d803f847fc93ba4ec.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/7456efbb393f4c46fac1c032fcfe908b/c180709f0a1beca8-18/s100x200/bec4ce9c8fde0b9a26abea9cda3ebb34986148d4.pnj" width="10%" height="100%"/> <img src="https://64.media.tumblr.com/b58a93aa834c27e638e091c0739453e7/c180709f0a1beca8-67/s100x200/be992e9dea122ef2abb4e9b0a07ec607297cb949.pnj" width="10%" height="100%"/>
 </p>

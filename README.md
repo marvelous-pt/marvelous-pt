@@ -66,13 +66,15 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
   <br>
 <a href="https://github.com/LYLA2099" rel="nofollow">@LYLA2099</a> is the #1 MiguelCest Shipper ! <br>
   <br>
-<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is Pony Town's Chance x Elliot Shipper ! <br>
+<a href="https://github.com/kaban0z" rel="nofollow">@kaban0z</a> is the #1 Chance x Elliot Shipper ! <br>
   <br>
-<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is Pony Town's Haebeom Kwon x Sung Ho Shipper ! <br>
+<a href="https://github.com/MYBRIGHTESTST4R" rel="nofollow">@MYBRIGHTESTST4R</a> is the #1 Haebeom Kwon x Sung Ho Shipper ! <br>
   <br>
-<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is Pony Town's Heavy x Medic Shipper ! <br>
+<a href="https://github.com/T0R4X" rel="nofollow">@T0R4X</a> is the #1 Heavy x Medic Shipper ! <br>
   <br>
-<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is Pony Town's Karl x Barry Shipper ! <br>
+<a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is the #1 Karl x Barry Shipper ! <br>
+  <br>
+<a href="https://github.com/endless-cycles" rel="nofollow">@endless-cycles</a> is the #1 Majin Sonic x Lord X Shipper ! <br>
 
 # CHARACTER NOMINATIONS
 
@@ -217,8 +219,16 @@ I AM OLD AND DON'T REALLY KEEP UP WITH STUFF LIKE THAT**
 <a href="https://github.com/f1refist" rel="nofollow">@f1refist</a> is Pony Town's Portgas D. Ace (ᴏɴᴇ ᴘɪᴇᴄᴇ) ! <br>
   <br>
 <a href="https://github.com/DucksEatBreads" rel="nofollow">@DucksEatBreads</a> is Pony Town's John Jones (ᴅᴄ) ! <br>
-
-
+  <br>
+<a href="https://github.com/armaangelus" rel="nofollow">@armaangelus</a> is Pony Town's Pete Wentz (Fᴀʟʟ ᴏᴜᴛ ʙᴏʏ) ! <br>
+  <br>
+<a href="https://github.com/timidcandle" rel="nofollow">@timidcandle</a> is Pony Town's Waxwell (ᴅᴀɴᴅʏ's ᴡᴏʀʟᴅ) ! <br>
+  <br>
+<a href="https://github.com/naturalharmoniaa" rel="nofollow">@naturalharmoniaa</a> is Pony Town's N (ᴘᴏᴋᴇᴍᴏɴ) ! <br>
+  <br>
+<a href="https://github.com/endless-cycles" rel="nofollow">@endless-cycles</a> is Pony Town's Majin Sonic (Sᴏɴɪᴄ CD 1993) ! <br>
+  <br>
+<a href="https://github.com/theultimatekohamster" rel="nofollow">@theultimatekohamster</a> is Pony Town's ITrapped (ғᴏʀsᴀᴋᴇɴ) ! <br>
 
 
 <p align="center">

@@ -178,6 +178,10 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN <br>
 <a href="https://github.com/sea-shantyyy" rel="nofollow">@sea-shantyyy</a> is Pony Town's Telamon (ғᴏʀsᴀᴋᴇɴ) ! <br>
   <br>
 <a href="https://github.com/antoneIIi" rel="nofollow">@antoneIIi</a> is Pony Town's Kimi Antonelli (ғᴏʀᴍᴜʟᴀ 1) ! <br>
+  <br>
+<a href="https://github.com/TheLongLongHoliday" rel="nofollow">@TheLongLongHoliday</a> is Pony Town's Lt. Commander Data (sᴛᴀʀ ᴛʀᴇᴋ) ! <br>
+  <br>
+<a href="https://github.com/Avery-whatsinyourinventory" rel="nofollow">@Avery-whatsinyourinventory</a> is Pony Town's Coldified  (ᴍᴄʏᴛ) ! <br>
 
 <p align="center">
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/Ship.png" width="30%" height="100%"/><br>
@@ -230,6 +234,8 @@ NO RESPONSE = CHARACTER IS ALREADY TAKEN <br>
 <a href="https://github.com/Heart0fGold" rel="nofollow">@Heart0fGold</a> is the #1 Karl x Barry Shipper ! <br>
   <br>
 <a href="https://github.com/endless-cycles" rel="nofollow">@endless-cycles</a> is the #1 Majin Sonic x Lord X Shipper ! <br>
+  <br>
+<a href="https://github.com/TheLongLongHoliday" rel="nofollow">@TheLongLongHoliday</a> is the #1 Julian Bashir x Elim Garak Shipper ! <br>
 
 <p align="center">
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/Github/MrvlTop.png" width="60%" height="100%"/><br>
